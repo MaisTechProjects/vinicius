@@ -41,6 +41,6 @@
 
 Sinta-se livre para me seguir ou se conectar no meu Linkedin e Instagram.
 
-> [LinkedIn](https://www.linkedin.com/in/vinicius-henrique-415b52348/) <
+> [LinkedIn](https://www.linkedin.com/in/vinicius-henrique-415b52348/)
 >
 > [Instagram](https://www.instagram.com/mrvihks)
